@@ -1,3 +1,2 @@
 # thienhuy
-Huy đẹp zai quá
-thuần đẹp zai hơn 
+thuần đẹp zai 
